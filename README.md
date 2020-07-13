@@ -1,2 +1,3 @@
-## [CSC is Life](pittcsc.org)
-![](https://robbiemckinstry.tech/static/images/memes/dynamic-programming.png)
+# Cat
+<img src="IMG_5591.jpg" width = "50%">
+Cat b sick of my shit
