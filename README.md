@@ -1,2 +1,2 @@
-## 
-[](https://cultofthepartyparrot.com/parrots/hd/stableparrot.gif)
+## [CSC is Life](pittcsc.org)
+![](https://robbiemckinstry.tech/static/images/memes/dynamic-programming.png)
